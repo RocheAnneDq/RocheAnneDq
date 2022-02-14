@@ -5,5 +5,5 @@
 - 🤔 I’m looking for help with ... Someone who's willing to do so
 - 💬 Ask me about ... strength and ability
 - 📫 How to reach me: ... thru my email
-- ⚡ Fun fact: ... I have lots of plan to do, but sleeping is my number 1.
+- ⚡ Fun fact: ... I have a lot of plans to do, but sleeping is my number 1.
 -->
